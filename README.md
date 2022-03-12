@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 https://www.adda247.com/school/cbse-term-1-result/
+https://www.adda247.com/school/cbse-term-1-result-class-10/
 https://www.adda247.com/school/cbse-term-2-datesheet-2022/
 <!---
 Brajesh09/Brajesh09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
